@@ -3,8 +3,10 @@
 1. *Вомбат моё любимое животное.*
 2. **Всю информацию я воспринимаю буквально.**
 3. **_В моём_ _доме ни одного вомбата_**.
+  
   Фото
- ![ВОМБАТ](https://i.pinimg.com/originals/b5/e1/f8/b5e1f83626576e167bcdff535ac4ec50.jpg)
+
+![ВОМБАТ](https://i.pinimg.com/originals/b5/e1/f8/b5e1f83626576e167bcdff535ac4ec50.jpg)
  Это вомбат
  
  [если захочется еще немого вомбата](https://www.youtube.com/watch?v=HN7BnOJA8q4&ab_channel=%D0%9F%D0%BB%D0%B0%D0%BD%D0%B5%D1%82%D0%B0%D0%97%D0%B5%D0%BC%D0%BB%D1%8F)
